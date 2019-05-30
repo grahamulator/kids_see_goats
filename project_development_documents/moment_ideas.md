@@ -1,9 +1,9 @@
 # Great Moments:
 
 ## Beats
-- I Am A God 3:28
+- I Am A God 3:26
 - I'm In It 1:18
-- Bound 2 1:35
+- Bound 2 1:30
 - All Of The Lights 0:00
 - New Slaves 2:52
 - Famous 1:50
